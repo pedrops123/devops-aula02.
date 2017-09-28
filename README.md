@@ -1,5 +1,7 @@
 Brad Pitt 
 
-Angelina Jolie
+Bruce Willis
 
 Adam Sandler
+
+Ryan Gosling
